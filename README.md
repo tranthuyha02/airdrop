@@ -11,3 +11,18 @@ lặp lại kiến thức
  f gnfgn fgn fgn f 
  g g gh mghm ghm gm 
  g gmgm ghm ghm gh
+df bdf df
+bdfb
+df
+bdf
+bdf
+b
+dfb
+df
+b
+dfb
+dfb
+d
+fb
+df
+b
