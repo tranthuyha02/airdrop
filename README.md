@@ -4,25 +4,9 @@ nhà đầu tư
 sức ảnh hưởng
 trend
 lặp lại kiến thức
- htyhtyht
- tyjyut yu y
- rty tyjh tỵ ty
- dfdf vdf vdf 
- f gnfgn fgn fgn f 
- g g gh mghm ghm gm 
- g gmgm ghm ghm gh
-df bdf df
-bdfb
-df
-bdf
-bdf
-b
-dfb
-df
-b
-dfb
-dfb
-d
-fb
-df
-b
+sdcsdc sdc sdcsd sdc sdcs dcsdc sdc
+sd csdc sd csd csdcsd
+c sdcsdc sdcsdc sdcsdc
+ sdcsd csdc sdcsdcdsc sdc
+ ds csd csdcsdcsdc sd
+ ds csdc sdc sdc sdc s
