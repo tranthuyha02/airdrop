@@ -16,3 +16,7 @@ tạo acc x mới cho hnay
 cretor acc github vs X 
 hnay hoc dc gi?
 mai hoc gi?học toán cao cấp logic.
+làm sao làm bài tập
+cretor acc github vs X 
+viet tieu su, tinhs points
+tạo acc x mới cho hnay
